@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @s1ntheta
+- 👀 I’m interested in python, java, c++, c.
+- 🌱 I’m currently learning python
+- 📫 How to reach me ...
+- 😄 Pronouns: she/her
+- ⚡ Fun fact: im in 11th grade
