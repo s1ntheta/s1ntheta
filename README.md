@@ -3,4 +3,4 @@
 - 🌱 I’m currently learning python
 - 📫 How to reach me ...
 - 😄 Pronouns: she/her
-- ⚡ Fun fact: im in 11th grade
+- ⚡ Fun fact: im in 12th grade
